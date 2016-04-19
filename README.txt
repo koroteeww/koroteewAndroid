@@ -1,3 +1,3 @@
 Ivan Koroteev
-Android sudy jams
+Android study jams
 Moscow, 23.04.2016
